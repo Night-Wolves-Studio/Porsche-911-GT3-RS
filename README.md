@@ -13,4 +13,4 @@ For the Porsche 911, 🏁 Night Wolves Studio wanted to take a different approac
 🛠️ Key Message:
 📝 "Some legacies can never be erased." We created a narrative of rebellion and timelessness, showcasing the Porsche 911 as an untouchable, iconic machine that defies modern trends, especially in an electric age. 🚗⚡🚫
 
-Video Link: <a href="https://www.dailymotion.com/video/x9fhors">
+Video Link: https://www.dailymotion.com/video/x9fhors
